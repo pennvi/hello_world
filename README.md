@@ -1,5 +1,5 @@
 # hello_world
-figuring it out.
-this seems to be making slightly more sense
+
 
 yo fuck waking up at 2pm yo
+dont like it one bit
