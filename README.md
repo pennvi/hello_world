@@ -1,5 +1,7 @@
 # hello_world
 
 
-yo fuck waking up at 2pm yo
-dont like it one bit
+1 month later
+know a little more
+have a little less time
+
